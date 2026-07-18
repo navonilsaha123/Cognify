@@ -1,5 +1,3 @@
-Excellent choice. **Cognify** sounds modern, memorable, and startup-like.
-
 # 🧠 Cognify – AI Learning & Study Assistant
 
 ### 🚀 Tagline
