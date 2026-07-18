@@ -50,4 +50,3 @@ Excellent choice. **Cognify** sounds modern, memorable, and startup-like.
 * 🏆 Gamification (badges & streaks)
 * 📈 AI performance prediction
 
-This name gives your project a polished, SaaS-style identity that's well suited for a portfolio or resume.
